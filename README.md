@@ -1,0 +1,2 @@
+# odincoin
+ODIN COIN TOKEN BNB
